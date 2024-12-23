@@ -1,0 +1,2 @@
+# School
+Just for pages
